@@ -8,3 +8,7 @@ because i love linux and c.you know about it .
 oh 
 I juset want to say you a good man.
 ************************************/
+
+/*
+my lase set you will how about it 
+*/
