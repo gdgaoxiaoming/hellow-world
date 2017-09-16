@@ -8,3 +8,5 @@ because i love linux and c.you know about it .
 oh 
 I juset want to say you a good man.
 ************************************/
+
+what a bad day
